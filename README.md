@@ -1,4 +1,3 @@
 # abdi
-Somedroops for shipping 
-(Face coler)
-011001101011101
+Somedroops for shipping fell comfortable choose wisely
+                 Think wisely 🏠 
